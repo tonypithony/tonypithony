@@ -9,4 +9,4 @@
 ![](https://raw.githubusercontent.com/tonypithony/tonypithony/refs/heads/main/pyprocessing.jpg)
 
 
-![](https://raw.githubusercontent.com/tonypithony/tonypithony/refs/heads/main/wishpics_ru_bd57ac72da03ab5a525521b0ad3f9878.jpg)
+![](https://raw.githubusercontent.com/tonypithony/tonypithony/refs/heads/main/5a0ce9c2-dfe4-4197-ac89-46e779f74e1b.png)
